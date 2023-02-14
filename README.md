@@ -15,8 +15,9 @@ Es una gran serie y muy entretenida tiene partes muy interesantes como la que fi
 * Walter Junior
 * Los primos de Tuco
 * Hector Salamanca
-## **Conclusion
+## **Conclusion** 
 es una gran serie debido al tema que tratan el cual se nos hace muy interesante y por como desarrrollan el mismo tema durante toda la serie que lo hacen de una forma entretenida y preparando cada vez el mejor el gran final.
+
 [https://es.wikipedia.org/wiki/Breaking_Bad]
 [https://www.filmaffinity.com/es/film489970.html]
 [https://www.netflix.com/title/70143836]
